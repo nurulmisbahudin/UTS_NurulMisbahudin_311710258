@@ -1,10 +1,10 @@
 # UTS_NurulMisbahudin_311710258
 
+![Capture](https://user-images.githubusercontent.com/37294673/81472523-c7643d00-9222-11ea-96a9-88b746bbab99.PNG)
+![new1](https://user-images.githubusercontent.com/37294673/81472525-c92e0080-9222-11ea-830e-c69e38e6df2b.PNG)
+![new2](https://user-images.githubusercontent.com/37294673/81472526-c92e0080-9222-11ea-8e07-9182409181ef.PNG)
+![new3](https://user-images.githubusercontent.com/37294673/81472527-c9c69700-9222-11ea-8b9b-cbb05c95891d.PNG)
+![new4](https://user-images.githubusercontent.com/37294673/81472528-ca5f2d80-9222-11ea-89e0-c23d8162296b.PNG)
+![new5](https://user-images.githubusercontent.com/37294673/81472529-ca5f2d80-9222-11ea-9b7c-864dc5382263.PNG)
+![new6](https://user-images.githubusercontent.com/37294673/81472530-caf7c400-9222-11ea-8498-92ce5000d683.PNG)
 
-![new5](https://user-images.githubusercontent.com/37294673/81472383-fb8b2e00-9221-11ea-859b-57b1dce53870.PNG)
-![new6](https://user-images.githubusercontent.com/37294673/81472384-fc23c480-9221-11ea-9be4-39fce14166cf.PNG)
-![Capture](https://user-images.githubusercontent.com/37294673/81472385-fcbc5b00-9221-11ea-937c-9829ff67786c.PNG)
-![new1](https://user-images.githubusercontent.com/37294673/81472386-fd54f180-9221-11ea-834b-9be953b3ebce.PNG)
-![new2](https://user-images.githubusercontent.com/37294673/81472387-fded8800-9221-11ea-82a4-aedf0a73842e.PNG)
-![new3](https://user-images.githubusercontent.com/37294673/81472388-fded8800-9221-11ea-9bfd-65e5c5480235.PNG)
-![new4](https://user-images.githubusercontent.com/37294673/81472390-fe861e80-9221-11ea-8fff-de69f613de02.PNG)
